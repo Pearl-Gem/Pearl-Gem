@@ -11,8 +11,7 @@
 
 
 
-Ａｂｏｕｔ ｍｅ !! 🍥
-
+Ａｂｏｕｔ ｍｅ !! ꣑ৎ˚⊹ 🍥 ｡𖦹
 ![image](https://github.com/user-attachments/assets/a86421e9-025c-44df-b3bd-f16db9d3b5be)
 
 🌿⋆𐙚˚⊹♡ 𝘏𝘢𝘯𝘢 , 𝕸𝖎𝖘𝖆 ![image](https://github.com/user-attachments/assets/cefb9973-1d15-4e95-b0a5-cd56e0b6cd96) ![image](https://github.com/user-attachments/assets/55a5aa23-b336-4d48-b111-6214670c8593) , Bi
@@ -20,11 +19,11 @@
 
 °🍵⋆.ೃ࿔*:･ ![image](https://github.com/user-attachments/assets/cefb9973-1d15-4e95-b0a5-cd56e0b6cd96) Zai -`♡´- (My love !! )
 
-°🍵⋆.ೃ࿔*:･ ![image](https://github.com/user-attachments/assets/cefb9973-1d15-4e95-b0a5-cd56e0b6cd96) INTP , Leo
+°🍵⋆.ೃ࿔*:･ ![image](https://github.com/user-attachments/assets/cefb9973-1d15-4e95-b0a5-cd56e0b6cd96) INFP-T , Leo
 
 °🍵⋆.ೃ࿔*:･ ![image](https://github.com/user-attachments/assets/cefb9973-1d15-4e95-b0a5-cd56e0b6cd96) July 23
 
-Ｂｙｉ !! °˖𓍢ִ໋🍃
+Ｂｙｉ !!˙ . ꒷ 🍰 . 𖦹˙—
 
 ![image](https://github.com/user-attachments/assets/33fcbf3b-f261-4f57-921b-3ba53dbcc7b3) ── .✦ I sometimes make uncomfortable jokes, I say KYS a lot. + Dark humor
 
