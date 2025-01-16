@@ -30,7 +30,7 @@
 
 ![image](https://github.com/user-attachments/assets/37993595-5f0d-4a31-a163-ead727da3a98) ── .✦ I can be very awkward. If I am silent or not answering I may be afk or I am thinking about what to say !
 
-![image](https://github.com/user-attachments/assets/ab7f67c6-44cf-419d-a28b-f0c7bada7e3e) ── .✦ Int freely, unless dni/dniu(f/c or a certain person) is stated on my name. I might not be able to int with friends !
+![image](https://github.com/user-attachments/assets/ab7f67c6-44cf-419d-a28b-f0c7bada7e3e) ── .✦ Int freely, unless dni/dniu(f/c or a certain person) is stated on my name. I might not be able to int when I am with friends !
 
 ![image](https://github.com/user-attachments/assets/0d75b751-e5a5-4c6a-a1e2-868b60a18fa3) ── .✦ Basic dni critera !! ^v^
 
