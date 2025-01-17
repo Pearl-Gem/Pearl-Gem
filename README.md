@@ -13,7 +13,8 @@
 
 Ａｂｏｕｔ ｍｅ !! ꣑ৎ˚⊹ 🍥 ｡𖦹
 
-![image](https://github.com/user-attachments/assets/a86421e9-025c-44df-b3bd-f16db9d3b5be)
+![image](https://github.com/user-attachments/assets/152cee05-371b-4a3d-9c31-c3bc66e92e3a)
+
 
 🌿⋆𐙚˚⊹♡ 𝘏𝘢𝘯𝘢 , 𝕸𝖎𝖘𝖆 ![image](https://github.com/user-attachments/assets/cefb9973-1d15-4e95-b0a5-cd56e0b6cd96) ![image](https://github.com/user-attachments/assets/55a5aa23-b336-4d48-b111-6214670c8593) , Bi
 
@@ -34,6 +35,7 @@
 
 ![image](https://github.com/user-attachments/assets/0d75b751-e5a5-4c6a-a1e2-868b60a18fa3) ── .✦ Basic dni critera !! ^v^
 
-![image](https://github.com/user-attachments/assets/a86421e9-025c-44df-b3bd-f16db9d3b5be)
+![image](https://github.com/user-attachments/assets/712940fd-e610-41a3-b1ab-e7f7f29232a4)
+
 
 Thanks for reading !! <3
