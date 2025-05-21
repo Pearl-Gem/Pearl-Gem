@@ -8,7 +8,6 @@
 ![gif](https://i.postimg.cc/SssX04tQ/tumblr-0b2f58bfc84275adb956a6a8cc92ee03-bd710042-100.gif)
 ![gif](https://images4.imagebam.com/49/2c/81/MESA796_o.gif)
 
-🐇་࿐ " 𝐿𝑒𝓉 𝓂𝑒 𝓂𝒶𝓀𝑒 𝓎𝑜𝓊 𝒶 𝒸𝓊𝓅 𝑜𝒻 𝓉𝑒𝒶 𝒾𝓃𝒻𝓊𝓈𝑒𝒹 𝓌𝒾𝓉𝒽 𝓂𝓎 𝓁𝑜𝓋𝑒! "
 ![gif](https://i.pinimg.com/originals/8a/09/fc/8a09fcf004c0c6496a9ffe4403131af7.gif)
 
 ![gif](https://files.catbox.moe/3mwzds.gif)
